@@ -1,1 +1,1 @@
-# EDU
+# Bu mashq uchun
